@@ -1,2 +1,1 @@
-# valdezdatacode
-Code &amp; stuff | valdezdata
+Feel free to navigate throught the codes
