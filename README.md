@@ -1,1 +1,1 @@
-Feel free to navigate throught the codes
+Feel free to navigate through the codes
